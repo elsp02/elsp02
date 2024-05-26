@@ -11,8 +11,7 @@
 
 ## Contact
 
-    📧 Email: [Your Email]
+    📧 Email: [elena.spitzer02@gmail.com]
     🔗 LinkedIn: [Your LinkedIn Profile]
-    🐦 Twitter: [@YourTwitterHandle]
 
 
